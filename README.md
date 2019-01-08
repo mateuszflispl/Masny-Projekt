@@ -1,1 +1,2 @@
-Wpsiuje sobie coś :P
+Coś nie tak chyba
+O teraz działa
